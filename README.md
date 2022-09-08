@@ -7,6 +7,6 @@
 <!-- 👯 I’m looking to collaborate on 
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ... -->
-- 📫 How to reach me: 
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/blairreynolds4) : [Twitter](https://www.twitter.com/sooshmeow)
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I am quickly amassing a large collection of vintage tech, most notably game consoles!
